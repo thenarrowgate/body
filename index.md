@@ -2,9 +2,7 @@
 #### |_avoid herds & enter the narrow gate_|
 
 **............................................................................................**
-
-I can only run distances. I'll share more soon.
-
+I can only run distances.
 **............................................................................................**
 
 **move your body (2 March 2020)**
