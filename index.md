@@ -4,3 +4,14 @@
 **............................................................................................**
 
 I can only run distances. I'll share more soon.
+
+**............................................................................................**
+
+**move your body (2 March 2020)**
+
+Do yourself a favour; don't follow the herds.
+
+1. Take the stairs for shorter distances, even if escalators or elevators are available.
+2. Stand, not sit, while you are on the MRT train.
+3. Brisk walk or run for 45 minutes per session.
+
