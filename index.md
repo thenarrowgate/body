@@ -3,7 +3,15 @@
 
 **............................................................................................**
 
-I can only run distances.
+I can only run distances, barefoot-style.
+
+**............................................................................................**
+
+**time-based running (4 March 2020)**
+
+These are my numbers for the different distance running I have done so far: **_232951182030452500_**. I am pretty pleased with them though there are times I want to better them.
+
+Yet, I know my ultimate running goal is to do a 50-mile run, so speed is no longer a concern. In fact, last week, I started doing time-based running which I believe will train me effectively for an ultra-run. I want to **run far and long**.
 
 **............................................................................................**
 
