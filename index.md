@@ -9,7 +9,7 @@ I can only run distances, barefoot-style.
 
 **my running creed**
 ```
-<center>running is not a sport or a fasion;</center>
+running is not a sport or a fasion;
 it's endurance.
 i run when i'm tired,
 i run when i'm sleepy,
