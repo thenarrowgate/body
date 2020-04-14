@@ -7,6 +7,21 @@ I can only run distances, barefoot-style.
 
 **............................................................................................**
 
+**my running creed**
+
+<center>running is not a sport or a fasion;</center>
+it's endurance.
+i run when i'm tired,
+i run when i'm sleepy,
+i run when the weather is hot,
+i run when the weather is wet,
+i run when i don't want to,
+i run when others don't want to,
+i run when it's uncomfortable,
+i run when i have to endure.
+running is endurance;
+it's not a sport or a fashion.
+
 **time-based running**
 
 These are my numbers for the different distance running I have done so far: **_232951182030452500_**. I am pretty pleased with them though there are times I want to better them.
