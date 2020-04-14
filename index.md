@@ -8,7 +8,7 @@ I can only run distances, barefoot-style.
 **............................................................................................**
 
 **my running creed**
-
+```
 <center>running is not a sport or a fasion;</center>
 it's endurance.
 i run when i'm tired,
@@ -21,6 +21,8 @@ i run when it's uncomfortable,
 i run when i have to endure.
 running is endurance;
 it's not a sport or a fashion.
+```
+**............................................................................................**
 
 **time-based running**
 
