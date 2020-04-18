@@ -44,3 +44,18 @@ Do yourself a favour; don't follow the herds.
 
 (2/3)
 
+**............................................................................................**
+
+[Everest Marathon](http://everestmarathon.com/)
+[Julie Morris](https://www.mysmartplants.com/)
+[Tyrant Farms](https://www.tyrantfarms.com/)
+[Nature's Glory](https://www.natures-glory.com/)
+[Aerospring Gardens](https://aerospringgardens.com/)
+[Freshket](https://www.freshket.co/)
+[Click and Grow](https://asia.clickandgrow.com/)
+[Somi Igbene](https://tap.bio/@somiigbene)
+[Asian Food Network](https://asianfoodnetwork.com/)
+[David Perlmutter](https://www.drperlmutter.com/)
+[Blue Zones](https://www.bluezones.com/)
+[Mark Hyman](https://drhyman.com/)
+[Patrick Holford](https://www.patrickholford.com/)
