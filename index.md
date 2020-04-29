@@ -55,12 +55,8 @@ Do yourself a favour; don't follow the herds.
 [Everest Marathon](http://everestmarathon.com/) |
 [Freshket](https://www.freshket.co/) |
 [Julie Morris](https://www.mysmartplants.com/) |
+[Mark Hyman](https://drhyman.com/) |
 [Nature's Glory](https://www.natures-glory.com/) |
+[Patrick Holford](https://www.patrickholford.com/) |
 [Somi Igbene](https://tap.bio/@somiigbene) |
 [Tyrant Farms](https://www.tyrantfarms.com/) |
-
-
-
-
-[Mark Hyman](https://drhyman.com/) |
-[Patrick Holford](https://www.patrickholford.com/) |
