@@ -47,11 +47,11 @@ Do yourself a favour; don't follow the herds.
 
 **............................................................................................**
 
-[Aerospring Gardens](https://aerospringgardens.com/) * [Asian Food Network](https://asianfoodnetwork.com/) * [Blue Zones](https://www.bluezones.com/) * [Choui Fong Tea](https://www.chouifongtea.com/) * [Click and Grow](https://asia.clickandgrow.com/) * [David Perlmutter](https://www.drperlmutter.com/) * [Everest Marathon](http://everestmarathon.com/) *
-[Freshket](https://www.freshket.co/) *
-[Julie Morris](https://www.mysmartplants.com/) *
-[Mark Hyman](https://drhyman.com/) *
-[Nature's Glory](https://www.natures-glory.com/) *
-[Patrick Holford](https://www.patrickholford.com/) *
-[Somi Igbene](https://tap.bio/@somiigbene) *
-[Tyrant Farms](https://www.tyrantfarms.com/) *
+[Aerospring Gardens](https://aerospringgardens.com/){:target="_blank"} * [Asian Food Network](https://asianfoodnetwork.com/){:target="_blank"} * [Blue Zones](https://www.bluezones.com/){:target="_blank"} * [Choui Fong Tea](https://www.chouifongtea.com/){:target="_blank"} * [Click and Grow](https://asia.clickandgrow.com/){:target="_blank"} * [David Perlmutter](https://www.drperlmutter.com/){:target="_blank"} * [Everest Marathon](http://everestmarathon.com/){:target="_blank"} *
+[Freshket](https://www.freshket.co/){:target="_blank"} *
+[Julie Morris](https://www.mysmartplants.com/){:target="_blank"} *
+[Mark Hyman](https://drhyman.com/){:target="_blank"} *
+[Nature's Glory](https://www.natures-glory.com/){:target="_blank"} *
+[Patrick Holford](https://www.patrickholford.com/){:target="_blank"} *
+[Somi Igbene](https://tap.bio/@somiigbene){:target="_blank"} *
+[Tyrant Farms](https://www.tyrantfarms.com/){:target="_blank"} *
